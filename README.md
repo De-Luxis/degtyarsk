@@ -2,7 +2,7 @@
 
 Ссылки на группы в мессенджерах и социальных сетях.
 
-Telegram: https://tglink.me/joinchat/dils4eoukrzvedhxp7tvvw
+[Telegram](tg://test): https://tglink.me/joinchat/dils4eoukrzvedhxp7tvvw
 
 WhatsApp Дегтярск-Екб: https://chat.whatsapp.com/HhCAa9wYvCqCXDqrvwvKKo
 
