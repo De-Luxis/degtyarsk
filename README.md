@@ -2,9 +2,9 @@
 
 Ссылки на группы попуток в мессенджерах и социальных сетях.
 
-Telegram: https://tglink.ru/degtyarsk_poputka
+Telegram: 
 
-WhatsApp 1: https://chat.whatsapp.com/HhCAa9wYvCqCXDqrvwvKKo
+WhatsApp 1: [https://chat.whatsapp.com/HhCAa9wYvCqCXDqrvwvKKo](https://chat.whatsapp.com/HhCAa9wYvCqCXDqrvwvKKo)
 
 WhatsApp 2: https://chat.whatsapp.com/H9edx1VkhTM90Qn9sLM9vV
 
