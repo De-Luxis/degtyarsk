@@ -12,6 +12,8 @@
 
 [WhatsApp 4](https://chat.whatsapp.com/DkPlQsRH3MDKgcoasyUDKF)
 
+[WhatsApp 5](https://chat.whatsapp.com/JlG9N6wsmdr6PwVFhkC3C1)
+
 [Viber](https://invite.viber.com/?g2=AQB3FCgnOhIQD0kkDnTNoB14X54wQgz0nCAe0RiJAw6V7pQtvXErl8fFrTv0OnT0)
 
 [Вконтакте 1](https://vk.com/poputkadegtyarsk)
