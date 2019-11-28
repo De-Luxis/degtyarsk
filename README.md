@@ -2,7 +2,7 @@
 
 Ссылки на группы попуток в мессенджерах и социальных сетях.
 
-[Telegram](https://tglink.ru/degtyarsk_poputka) - нет ограничений по количеству участников. 
+[Telegram](https://tgrm.github.io/degtyarsk_poputka) - нет ограничений по количеству участников. 
 
 [WhatsApp 1](https://chat.whatsapp.com/HhCAa9wYvCqCXDqrvwvKKo)
 
