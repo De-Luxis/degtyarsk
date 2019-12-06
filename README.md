@@ -20,4 +20,6 @@
 
 [Вконтакте 2](https://vk.com/club184526180)
 
+[Одноклассники](https://ok.ru/group/55230929371166)
+
 [WhatsApp Ревда-Екб](https://chat.whatsapp.com/H8FB1vPkrrc9OCZWH4LocO)
