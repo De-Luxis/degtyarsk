@@ -6,13 +6,14 @@
 
 [WhatsApp 1](https://chat.whatsapp.com/HhCAa9wYvCqCXDqrvwvKKo)
 
-[WhatsApp 2](https://chat.whatsapp.com/H9edx1VkhTM90Qn9sLM9vV)
+[WhatsApp 2](https://chat.whatsapp.com/E9ArOxtwcMc8gLqUxcqBAS)
 
 [WhatsApp 3](https://chat.whatsapp.com/LSIR6YKccHBGhGLynDleYO)
 
 [WhatsApp 4](https://chat.whatsapp.com/DkPlQsRH3MDKgcoasyUDKF)
 
 [WhatsApp 5](https://chat.whatsapp.com/JlG9N6wsmdr6PwVFhkC3C1)
+
 
 [Viber](https://invite.viber.com/?g2=AQB3FCgnOhIQD0kkDnTNoB14X54wQgz0nCAe0RiJAw6V7pQtvXErl8fFrTv0OnT0)
 
