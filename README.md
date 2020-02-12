@@ -4,7 +4,7 @@
 
 [Telegram](https://tgrm.github.io/degtyarsk_poputka) - нет ограничений по количеству участников. 
 
-[WhatsApp 1](https://chat.whatsapp.com/HhCAa9wYvCqCXDqrvwvKKo)
+[WhatsApp 1](https://chat.whatsapp.com/BinIkNcVsfeL1jeFB5wyLw)
 
 [WhatsApp 2](https://chat.whatsapp.com/E9ArOxtwcMc8gLqUxcqBAS)
 
